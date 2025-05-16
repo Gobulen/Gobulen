@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Gobulen)))657fh
 - 👀 I’m interested in 
-- 🌱 I’m currently learning htasbharth
+- 🌱 I’m currently learning gifrtyhgujik
 - 💞️ I’m looking to rezgrdhzdg
 - 📫 How to reach me ...
 - 😄 Pronouns: ...uyt7fgyuiop
