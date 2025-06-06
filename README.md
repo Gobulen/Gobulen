@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Gobulen)))657fh
 - 👀 I’m interested in 
 - 🌱 I’m currently learning hythbsrh
-- 💞️ I’m looking to rsthrtgsth
+- 💞️ I’m looking to ffhjmgjhndyhjn
 - 📫 How to reach me ...
 - 😄 Pronouns: ...gfsertyh
 - ⚡ Fun fact: ...
