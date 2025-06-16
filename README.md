@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Gobulen)))657fh
 - 👀 I’m interested in 
-- 🌱 I’m currently learning mjhuihgyui
+- 🌱 I’m currently learning jufkuykm
 - 💞️ I’m looking to dhfhyrfhs
 - 📫 How to reach me ...
 - 😄 Pronouns: ...hyrtgerges
